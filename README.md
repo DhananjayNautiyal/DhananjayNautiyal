@@ -50,7 +50,7 @@ Check out some of my most interesting projects:
 I'd love to collaborate on interesting projects! Feel free to reach out:
 
 - **Email**: dhananjay.nautiyal@gmail.com
-- **LinkedIn**: [Your LinkedIn Profile](https://www.linkedin.com/in/dhananjaynautiyal)
+- **LinkedIn**: [My LinkedIn profile is here](https://www.linkedin.com/in/dhananjaynautiyal)
 
 ## 📝 Recent Blog Posts
 
